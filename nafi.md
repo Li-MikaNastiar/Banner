@@ -1,0 +1,1 @@
+https://media.discordapp.net/attachments/1209282611860471820/1242612534280851546/Proyek_Baru_14_B256390.png?ex=664e789a&is=664d271a&hm=17ca48ec6b2da084d3361a51ec27bfac0ade6b89c0c9de149436da16f6abf1ee&
